@@ -1,6 +1,6 @@
 Simon's stamp collection appp
 ---
-#About Simon
+#About Simon- test 
 
 
 
@@ -8,3 +8,6 @@ Simon's stamp collection appp
 
 
 stuff about simon stamps here....
+
+
+more about simon stamps here ...
