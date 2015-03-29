@@ -4,12 +4,4 @@ Simon's stamp collection appp
 
 
 
-
-
-
-stuff about simon stamps here....
-
-
-more about simon stamps here ...ls
-
-about simon test 
+Simon has been collecting stamps since 1981. He has a wide variety of expenisvie Chinese stamps. 
